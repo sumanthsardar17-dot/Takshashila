@@ -1,2 +1,0 @@
-# Takshashila
-FREE EDUCATION FOR ALL
